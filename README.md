@@ -1,1 +1,3 @@
-# YOGA
+Peaceful and Spiritual setting
+The natural beauty of Rishikesh’s environment complements the experience of <a href="https://www.rishikeshyttc.com/">200 hour Yoga Teacher Training in Rishikesh</a>
+ greatly. The tranquil atmosphere created by the Ganges River, rich vegetation, and the magnificence of the Himalayas work together to provide an ideal setting for meditation and self-awareness. The presence of numerous temples, spiritual gatherings, and the sacred Aarti (fire ceremony) at Parmarth Niketan further contribute to the spiritual essence of the town. Practicing yoga in such an environment helps students feel more connected to their inner selves and the universe.
